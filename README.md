@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Laura0Granados
+- 👀 I’m interested in anime and desings
+- 🌱 I’m currently learning digital desings
+- 💞️ I’m looking to collaborate on nothing haha
+- 📫 How to reach me ... i'm not interesting in it's
